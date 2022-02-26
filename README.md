@@ -1,1 +1,0 @@
-# ar_food_10en5td
